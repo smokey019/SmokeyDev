@@ -63,4 +63,4 @@ Email: smokey.on.twitch@gmail.com
 
 ---
 
-By using our online video game, you agree to the terms of this Privacy Policy. Thank you for playing and trusting SmokeyDev with your gaming experience.
+By using or accessing our video game(s), you agree to the terms of this Privacy Policy. Thank you for playing and trusting SmokeyDev with your gaming experience.
