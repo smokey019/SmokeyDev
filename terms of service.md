@@ -62,4 +62,4 @@ Email: smokey.on.twitch@gmail.com
 
 ---
 
-By accessing or using our online video game, you acknowledge that you have read, understood, and agree to be bound by these Terms of Service.
+By accessing or using our video game(s), you acknowledge that you have read, understood, and agree to be bound by these Terms of Service.
