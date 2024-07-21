@@ -48,7 +48,7 @@ You have the right to:
 - Request the deletion of your personal information, subject to certain legal obligations.
 - Opt-out of receiving promotional communications from us.
 
-To exercise any of these rights, please contact us at [Insert Contact Information].
+To exercise any of these rights, please contact us using the email down below or on Discord.
 
 **7. Changes to This Privacy Policy**
 
